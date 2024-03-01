@@ -1,2 +1,2 @@
 # icons
-Transparent background icons you can freely use. 
+Icons you can use for your profiles or portfolio 
